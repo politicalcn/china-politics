@@ -1,6 +1,6 @@
 The Tuidang Movement is a political campaign operated by the Epoch Times that aims to destroy the Communist Party of China (CPC).
 
-# Legitimacy of the movement
+# Illegitimacy of the movement
 The Tuidang Movement claims that 300,000,000+ people have quit the CPC.
 
 Stephen Gregory from the Epoch Times claimed that assumed names of ex-CPC members were also counted. This indicates that one can put names of other people and that the Tuidang Movement is unsure about the legitimacy of the names. 
