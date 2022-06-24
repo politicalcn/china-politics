@@ -43,6 +43,11 @@ An article by Boxun (https://news.boxun.com/news/gb/pubvp/2004/12/200412281433.s
 
 The names are 邓力群、余秋雨、郑伯农、周良沛、陈涌、柯岩、魏传统、李尔重、朱仲丽、王季青、王泽民、李真、华楠、张常海、栗栖、彭绪一、邓斌、欧阳山、张器友、贺敬之、徐肖冰、胡可、瞿维、胡朋、钱丹辉、魏巍、朱子奇、陆梅林、刘绍棠、程代熙、刘朝兰、麦辛、江波、陈志昂、潘仁山、柳萌、郑永惠、栾保俊、刘金、刘梦溪、方家文、刘荣庭、梵扬、楼栖、徐乐义、黎洪、陶有法、贾文昭、侯波、马文瑞.
 
-The problem is that, in this list of alleged resignations, there are people who were already deceased at the time of the publication of this statement. 
+The problem is that, in this list of alleged resignations, there are people who were already deceased at the time of the publication of this statement.
+
+魏传统 died in 1996，刘绍棠 died in 1997，程代熙 died in 1999，欧阳山 died in 2000，瞿维 died in 2002，马文瑞 died in 2004。
 
 Most of these people are staunch communists, and very old. It is unlikely that they would quit the party.
+
+For example, Deng Liqun was congratulating Xinjiang martyrs in a message to the Communist Party of China.
+https://www.scmp.com/news/china/article/1581910/leftist-deng-liqun-breaks-silence-praise-xinjiang-martyrs
