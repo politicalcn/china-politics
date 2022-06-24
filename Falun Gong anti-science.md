@@ -19,20 +19,20 @@ https://en.minghui.org/emh/articles/2005/7/2/62465.html
 ## Discourage belief in science
 Science follows logic, there is no such thing as "blinbly believing in science". Therefore, it is impossible to blindly believe in science. Li Hongzhi's poem "The World's Ten Evils" discourages science.
 
->Humans without kind thoughts— Human against human as enemy. 
->Destroying traditions— Culture turning decadent. 
->Homosexuality, licentious desires— Dark heart, turning demonic. 
->Gambling popular, drugs popular— Following whims and desires. 
->Lifting restrictions, promiscuity— Leading to evil and wickedness. 
->Sinister gangs, treacherous factions— Politicians and bandits, all one family. 
->Acting on one’s own decisions, deranging the masses— Against heaven, betraying Dao. 
->Blindly believing in science— Mutant mankind. 
->Publicizing and revering violence— Fond of audaciousness, competing at ruthlessness. 
->Religions turned evil— Money seekers, politicians. 
+>Humans without kind thoughts— Human against human as enemy. <br>
+>Destroying traditions— Culture turning decadent. <br>
+>Homosexuality, licentious desires— Dark heart, turning demonic. <br>
+>Gambling popular, drugs popular— Following whims and desires. <br>
+>Lifting restrictions, promiscuity— Leading to evil and wickedness. <br>
+>Sinister gangs, treacherous factions— Politicians and bandits, all one family. <br>
+>Acting on one’s own decisions, deranging the masses— Against heaven, betraying Dao. <br>
+>Blindly believing in science— Mutant mankind. <br>
+>Publicizing and revering violence— Fond of audaciousness, competing at ruthlessness. <br>
+>Religions turned evil— Money seekers, politicians. <br>
 >July 7, 1998
 
-English https://www.falundafa.org/book/eng/HongYinVB.htm#_Toc110877614
-Chinese https://web.archive.org/web/20191208210047/https://gb.falundafa.org/chigb/hongyin.htm#68
+- English https://www.falundafa.org/book/eng/HongYinVB.htm#_Toc110877614
+- Chinese https://web.archive.org/web/20191208210047/https://gb.falundafa.org/chigb/hongyin.htm#68
 
 # Real impacts
 
