@@ -3,7 +3,7 @@ The Tuidang Movement is a political campaign operated by the Epoch Times that ai
 # Illegitimacy of the movement
 The Tuidang Movement claims that 300,000,000+ people have quit the CPC.
 
-Stephen Gregory from the Epoch Times claimed that assumed names of ex-CPC members were also counted. This indicates that one can put names of other people and that the Tuidang Movement is unsure about the legitimacy of the names. 
+In a response to Daniel W. Drezner, Stephen Gregory from the Epoch Times said that deceased CPC members can quit, ex-CPC members can also "tuidang", assumed names were also counted. This indicates that one can put names of other people and that the Tuidang Movement is unsure about the legitimacy of the names. 
 
 There is a lack of corroborating sources. Daniel W. Drezner wrote on Foreign Policy that he couldn't find any non-Epoch Times report on the campaign. https://foreignpolicy.com/2005/03/15/can-200000-chinese-ex-communists-be-wrong/
 
