@@ -38,6 +38,6 @@ Science follows logic, there is no such thing as "blinbly believing in science".
 
 An article by practicioners on Minghui claims that a Vietnamese practicioner never had to take a pill again after believing Li Hongzhi.
 
-This profound reply from Master made me firm and undoubted. Since then I have never had to take a pill again. Master made me feel the energy flowing through my whole body.
+> This profound reply from Master made me firm and undoubted. Since then I have never had to take a pill again. Master made me feel the energy flowing through my whole body.
 
-https://vn.minghui.org/news/78569-de-cao-tam-tinh-vuot-qua-can-nhieu.html
+https://vn.minghui.org/news/78569-de-cao-tam-tinh-vuot-qua-can-nhieu.html (Vietnamese)
