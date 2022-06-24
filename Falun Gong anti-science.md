@@ -16,7 +16,7 @@ In an article on Minghui (Falun Gong website), Li Hongzhi claims to be able to c
 
 https://en.minghui.org/emh/articles/2005/7/2/62465.html
 
-## Discourage belief in science
+## Discouraging belief in science
 Science follows logic, there is no such thing as "blinbly believing in science". Therefore, it is impossible to blindly believe in science. Li Hongzhi's poem "The World's Ten Evils" discourages science.
 
 >Humans without kind thoughts— Human against human as enemy. <br>
@@ -26,7 +26,7 @@ Science follows logic, there is no such thing as "blinbly believing in science".
 >Lifting restrictions, promiscuity— Leading to evil and wickedness. <br>
 >Sinister gangs, treacherous factions— Politicians and bandits, all one family. <br>
 >Acting on one’s own decisions, deranging the masses— Against heaven, betraying Dao. <br>
->Blindly believing in science— Mutant mankind. <br>
+>**Blindly believing in science— Mutant mankind.** <br>
 >Publicizing and revering violence— Fond of audaciousness, competing at ruthlessness. <br>
 >Religions turned evil— Money seekers, politicians. <br>
 >July 7, 1998
