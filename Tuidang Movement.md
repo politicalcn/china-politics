@@ -54,3 +54,4 @@ https://www.scmp.com/news/china/article/1581910/leftist-deng-liqun-breaks-silenc
 
 # Vietnam falsely attributed to China
 In a page of "9binh" (Tuidang website in Vietnamese) (https://9binh.com/support/huong-dan-tam-thoai.html), it is shown that someone is claiming to quit the Vietnamese Communist Party (VCP) on The Epoch Times' Tuidang website for the Communist Party of China. This indicates that the alleged number of people who quit the Communist Party of China may include some who allegedly quit the Communist Party of Vietnam.
+![](./images/tuidang-vcp.jpg)
