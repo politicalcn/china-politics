@@ -12,3 +12,8 @@ A letter from a Falun Gong practicioner was sent to the Ipswich city council. It
 > "Your council must bought (sic) by the evil red dragon," (the Communist Party of China)
 
 https://www.couriermail.com.au/news/queensland/ipswich/he-will-punish-you-ipswich-councillors-threatened/news-story/28a93d8f3d1a23fec4bb8d9cb052e7e4
+
+# Mingming Chen
+Mingming Chen, who escaped China under the title of a Falun Gong practicioner, murdered her daughter.
+
+https://www.cbsnews.com/news/mingming-chen-mother-of-ashley-zhao-found-dead-in-family-restaurant-may-face-deportation-cops/
