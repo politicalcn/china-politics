@@ -45,3 +45,6 @@ He was the chairman of the Falun Dafa Society of Taiwan until 2014.
 > 台大新聞所教授張錦華表示，張清溪教授早年嚴肅具批判力，1998年開始修煉法輪功，2002年創辦台灣法輪大法學會並擔任理事長至2014年，面容已變得非常慈祥，奉行「真善忍」，開會還能雙盤腿1、2小時，如老僧入定。
 
  https://ec.ltn.com.tw/article/breakingnews/3801393
+
+# Chiang Yung-hsin
+Chiang Yung-hsin, a Falun Gong practicioner, was arrested in Thailand for hosting an illegal radio station for Sound of Hope, a Falun Gong-founded medium. https://www.benarnews.org/english/news/thai/broadcaster-trial-06132019111914.html
