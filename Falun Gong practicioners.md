@@ -1,4 +1,4 @@
-# Ipswich threat
+# Unnamed: Ipswich threat
 A letter from a Falun Gong practicioner was sent to the Ipswich city council. It read:
 
 > "If you help his cause, he will plant a wheel in your stomach, which protects you from any harm or illness,"
@@ -17,3 +17,6 @@ https://www.couriermail.com.au/news/queensland/ipswich/he-will-punish-you-ipswic
 Mingming Chen, who escaped China under the title of a Falun Gong practicioner, murdered her daughter.
 
 https://www.cbsnews.com/news/mingming-chen-mother-of-ashley-zhao-found-dead-in-family-restaurant-may-face-deportation-cops/
+
+# Phạm Thị Thiên Hà
+https://vietnamnews.vn/Society/749121/mastermind-of-corpse-in-concrete-case-sentenced-to-death.html
