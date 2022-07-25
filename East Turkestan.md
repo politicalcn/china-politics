@@ -5,3 +5,6 @@ Different names were also used:
 - "Chinese Tartary" source: Bellér-Hann, Ildikó (2008). "Place and People". Community Matters in Xinjiang, 1880-1949: Towards a Historical Anthropology of the Uyghur. Brill. pp. 35–38, 44–45. 
 - "Huijiang" source: Millward, James A. (2007). Eurasian Crossroads:A History of Xinjiang. Columbia University Press. pp. ix–x, 95. 
 - Xinjiang 
+
+# Second republic
+Ehmetjan Qasimi explained that the people of East Turkistan had risen in rebellion only to secure their rights under the Chinese constitution. (Benson, Linda (1990). The Ili Rebellion: the Moslem challenge to Chinese authority in Xinjiang, 1944-1949. M.E. Sharpe. ISBN 0-87332-509-5.)
