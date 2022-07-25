@@ -52,6 +52,18 @@ Most of these people are staunch communists, and very old. It is unlikely that t
 For example, Deng Liqun was congratulating Xinjiang martyrs in a message to the Communist Party of China.
 https://www.scmp.com/news/china/article/1581910/leftist-deng-liqun-breaks-silence-praise-xinjiang-martyrs
 
+## Hua Guofeng
+FLG media made a false that of Hua Guofeng quitting the party, claiming that a Japanese media reported it in 2001.
+ - https://www.slideshare.net/htcc/truthnews201206
+ - aboluowang.com, 日媒：华国锋要求退党引起大地震 被限制出国
+ - secretchina.com, 日媒：华国锋要求退党引起大地震 被限制出国
+ - 3tui.net, 蔡奇献“英明领袖”高帽 传遭王沪宁否定, http://www.3tui.net/2017/11/blog-post_163.html 
+
+In fact, he did not quit. In 2007, he participated in the CPC Congress (reserved to CPC members).
+> 2007年10月，华国锋出席了中共十七大
+
+Source: Ta Kung Pao (http://news.takungpao.com/history/wengu/2013-11/2045316_4.html)
+
 # Vietnam falsely attributed to China
 In a page of "9binh" (Tuidang website in Vietnamese) (https://9binh.com/support/huong-dan-tam-thoai.html), it is shown that someone is claiming to quit the Vietnamese Communist Party (VCP) on The Epoch Times' Tuidang website for the Communist Party of China. This indicates that the alleged number of people who quit the Communist Party of China may include some who allegedly quit the Communist Party of Vietnam.
 ![](./images/tuidang-vcp.jpeg)
