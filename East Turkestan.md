@@ -9,6 +9,8 @@ Different names were also used:
 - "Xinjiang" 
 
 # Second republic
+**Note: unfinished**
+
 Ehmetjan Qasimi explained that the people of East Turkistan had risen in rebellion only to secure their rights under the Chinese constitution. (Benson, Linda (1990). The Ili Rebellion: the Moslem challenge to Chinese authority in Xinjiang, 1944-1949. M.E. Sharpe. ISBN 0-87332-509-5.)
 
 Elihan Tore usurped the leadership role of the East Turkistan Republic.
