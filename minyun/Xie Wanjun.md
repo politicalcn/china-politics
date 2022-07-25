@@ -1,6 +1,6 @@
-Xie Wanjun is the chairman of the China Democracy Party.
+Xie Wanjun (谢万军) is the chairman of the China Democracy Party.
 
-# 谢万军的谎言被揭穿
+# Xie Wanjun's lies 谢万军的谎言被揭穿
 
 # Protests at Fudan University
 Xie Wanjun, chairman of the "China Democracy Party", posted a video on Twitter, claiming that it was an anti-lockdown protest at the Fudan University in Shanghai in 2022. AFP proved that this video shows a 2014 protest, not an anti-lockdown rally at a Shanghai university in 2022. 
