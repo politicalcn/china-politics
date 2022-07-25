@@ -1,10 +1,12 @@
 # History of the term
 East Turkistan was proposed by Nikita Bichurin to replace the term "Chinese Turkistan". Source: Bellér-Hann, Ildikó (2007). Situating the Uyghurs between China and Central Asia 
 Different names were also used: 
-- "Western Regions" source: Tikhvinskiĭ, Sergeĭ Leonidovich and Leonard Sergeevich Perelomov (1981). China and her neighbours, from ancient times to the Middle Ages: a collection of essays. Progress Publishers. p. 124. 
-- "Chinese Tartary" source: Bellér-Hann, Ildikó (2008). "Place and People". Community Matters in Xinjiang, 1880-1949: Towards a Historical Anthropology of the Uyghur. Brill. pp. 35–38, 44–45. 
-- "Huijiang" source: Millward, James A. (2007). Eurasian Crossroads:A History of Xinjiang. Columbia University Press. pp. ix–x, 95. 
-- Xinjiang 
+- "Western Regions" (Tikhvinskiĭ, Sergeĭ Leonidovich and Leonard Sergeevich Perelomov (1981). China and her neighbours, from ancient times to the Middle Ages: a collection of essays. Progress Publishers. p. 124.)
+- "Chinese Tartary" (Bellér-Hann, Ildikó (2008). "Place and People". Community Matters in Xinjiang, 1880-1949: Towards a Historical Anthropology of the Uyghur. Brill. pp. 35–38, 44–45.)
+- "Dzungaria" (Millward, James A. (2007). Eurasian Crossroads: A History of Xinjiang. Columbia University Press. pp. ix–x, 95.)
+- "Huijiang" (Millward, James A. (2007). Eurasian Crossroads: A History of Xinjiang. Columbia University Press. pp. ix–x, 95.)
+- "Altishahr" (Millward, James A. (2007). Eurasian Crossroads: A History of Xinjiang. Columbia University Press. pp. ix–x, 95.)
+- "Xinjiang" 
 
 # Second republic
 Ehmetjan Qasimi explained that the people of East Turkistan had risen in rebellion only to secure their rights under the Chinese constitution. (Benson, Linda (1990). The Ili Rebellion: the Moslem challenge to Chinese authority in Xinjiang, 1944-1949. M.E. Sharpe. ISBN 0-87332-509-5.)
