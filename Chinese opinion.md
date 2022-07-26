@@ -3,7 +3,7 @@
  - The COVID-19 pandemic caused the Chinese opinion of the US to decrease http://chinadatalab.ucsd.edu/viz-blog/pandemic-sees-increase-in-chinese-support-for-regime-decrease-in-views-towards-us/
 
 # Foreign media
- - Most Chinese don't want foreign journalists who publish negative news about China to enter China.
+ - Most Chinese don't want foreign journalists who publish negative news about China to enter China https://www.csis.org/features/public-opinion-china-liberal-silent-majority
 
 # China
  - 80% of China's new middle class feel better off materially and culturally than they were four to five years ago https://asia.nikkei.com/Business/Consumers/80-of-China-s-new-middle-class-feel-better-off-than-5-years-ago
