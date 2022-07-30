@@ -1,5 +1,9 @@
 Chinese Human Rights Defenders (CHRD) published a document titled "China: Massive Numbers of Uyghurs & Other Ethnic Minorities Forced into Re-education Programs".
 
+https://www.nchrd.org/2018/08/china-massive-numbers-of-uyghurs-other-ethnic-minorities-forced-into-re-education-programs/
+
+# Content
+
 The conclusion is that 30% of villagers are involuntarily sent to re-education camps.
 
 However, CHRD only relies on interviews with 8 Xinjiang residents and words of Zhang Yun, a Chinese official.
