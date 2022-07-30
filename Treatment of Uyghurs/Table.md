@@ -1,2 +1,3 @@
 List of arguments supporting the existence of a genocide of Uyghurs.
 - [Newlines Institute. The Uyghur Genocide: An Examination of China’s Breaches of the 1948 Genocide Convention](https://newlinesinstitute.org/uyghurs/the-uyghur-genocide-an-examination-of-chinas-breaches-of-the-1948-genocide-convention/)
+ - [CHRD. China: Massive Numbers of Uyghurs & Other Ethnic Minorities Forced into Re-education Programs](https://www.nchrd.org/2018/08/china-massive-numbers-of-uyghurs-other-ethnic-minorities-forced-into-re-education-programs/) ([debunked](https://github.com/politicalcn/china-politics/blob/main/Treatment%20of%20Uyghurs/China:%20Massive%20Numbers%20of%20Uyghurs%20%26%20Other%20Ethnic%20Minorities%20Forced%20into%20Re-education%20Programs.md))
