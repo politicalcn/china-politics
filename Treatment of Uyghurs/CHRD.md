@@ -14,3 +14,6 @@ Assuming that he indeed spoke those words, "30% of the masses are polluted by ex
 > In early 2018, officials in Xinjiang declared that they had met almost all the goals in the government’s anti-terror campaigns in presenting the Xinjiang government’s 2017 “work report” at the National People’s Congress annual session.
 
 This may imply that the officials have announced that they locked up suspected extremists. However, the cited source does not talk about extremism or re-education at all. It talks about the economic development of Xinjiang.
+
+http://cn.chinagate.cn/reports/2018-03/02/content_50636629.htm
+
