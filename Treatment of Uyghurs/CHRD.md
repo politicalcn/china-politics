@@ -10,5 +10,7 @@ There source cited for Zhang Yun's words is a dead link.
 
 https://www.toutiao.com/i6206979228854747650/
 
-Assuming that he indeed spoke those words, "30% of the masses are polluted by extremist forces" is possibly a unprecise guess. Furthermore, the term "concentrated force" may be figurative and "reeducation" may be only a campaign to raise public awareness.
+Assuming that he indeed spoke those words, "30% of the masses are polluted by extremist forces" is possibly a unprecise guess. Furthermore, the term "concentrated force" may be figurative and "reeducation" may be only a campaign to raise public awarenesNext, CHRD wrote:
+> In early 2018, officials in Xinjiang declared that they had met almost all the goals in the government’s anti-terror campaigns in presenting the Xinjiang government’s 2017 “work report” at the National People’s Congress annual session.
 
+This may imply that the officials have announced that they locked up suspected extremists. However, the cited source does not talk about extremism or re-education at all. It talks about the economic development of Xinjiang.
